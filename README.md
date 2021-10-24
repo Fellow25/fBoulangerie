@@ -1,7 +1,3 @@
 # fBoulangerie
 
-✅ Le discord de Fellow: https://discord.gg/87UvfZPJN9
-
-✅ Discord: Fellow#3858
-
 ✅ Vídeo: https://www.youtube.com/watch?v=8yCIyV6v6BI
